@@ -9,7 +9,7 @@
 ## 📫 Como me encontrar
 
 - ✉️ Email: [joaov.silvasantos09@email.com](mailto:joaov.silvasantos09@gmail.com)  
-- 💼 LinkedIn: [linkedin.com/in/seuperfil](linkedin.com/in/joão-vitor-silva-santos-b6bb19237)  
+- 💼 LinkedIn: [linkedin.com/in/João-vitor-silva](linkedin.com/in/joão-vitor-silva-santos-b6bb19237)  
 - 📂 GitHub: [github.com/Leviathan455](https://github.com/Leviathan455)  
 
 ---
